@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated okx trading bot Strategy | slippage-control + latency-optimization, the #1 okx trading bot. Includes slippage-control and latency-optimization
 
 
 
